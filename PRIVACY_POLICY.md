@@ -28,4 +28,4 @@ We may update our privacy policy from time to time. Any changes will be posted i
 
 ## Contact Us
 
-If you have any questions about this privacy policy, please contact us at: [your email address]
+If you have any questions about this privacy policy, please contact us at: kodemelos.studios@gmail.com
